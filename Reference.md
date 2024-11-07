@@ -1,5 +1,7 @@
 # Reference - Useful Resources/Links
 
+This all resources was approved and watched by me, and I am realy like it. Feel free to use and check it in time-to-time.
+
 ## Table of Contents
 
 - [Reference - Useful Resources/Links](#reference---useful-resourceslinks)
